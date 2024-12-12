@@ -1,0 +1,1 @@
+# freespiny-za-registraciyu-bez-depozita
